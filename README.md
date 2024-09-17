@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hrmnx13
 - 👀 I’m interested in ...coding , something that makes me happy
-- 🌱 I’m currently learning ...about ai through it ropar minor ai course and web developmeny
-- 💞️ I’m looking to collaborate on ...nope 
+- 🌱 I’m currently learning ...about ai through iit ropar minor ai course and web development also
+- 💞️ I’m looking to collaborate on .................(right am a vella bnda)
 - 📫 How to reach me ..dm me simple
 - 😄 Pronouns: ...english hindi punjabi
 - ⚡ Fun fact: ... im extrovert hwahahaha(kidding)
